@@ -10,4 +10,4 @@
 
 本专区提供最新中文字幕的视频资源，涵盖从欧美、日韩到国内精品内容，满足不同观众的观影需求。所有资源支持高清视频播放，无需下载，适配各种设备。每日更新精彩内容，确保你随时获得最新的电影、电视剧和其他精彩资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chan20250708/chan2 ）</span>
